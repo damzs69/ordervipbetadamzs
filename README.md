@@ -1,2 +1,0 @@
-# ordervipbetadamzs
-vip
